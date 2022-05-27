@@ -1,1 +1,0 @@
-# non-commercial SpaceX page
